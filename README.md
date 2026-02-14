@@ -23,7 +23,9 @@
 
 ⌇ please just PLEASE put 𓏻/silly𓏻 or 𓏻/joke𓏻 if you say smt like⨾ were not friends anymore. (im sorry but i take things seriously when it comes to this.)
 
-⌇ i have a boyfriend so dont go on flirting with me ROMANTICALLY or just flirt, and yes, i know him. hes my classmate.
+⌇ im a nonsharing Ivan yume. Doubles dni.
+
+⌇ i block FREELY
 
 ⌇ i'm all clingy and attached if you be my moot/friend.
 
@@ -42,4 +44,5 @@
 ⌇░ I ABSOLUTELY LOVE CLINGY PEOPLE, COME HERE AND CUDDLE MY PIXEL NOOOW!!!
 
 ⌇░ Basic int list. idk anymore.
+
 <img width="1536" height="2048" alt="1272" src="https://github.com/user-attachments/assets/97047e34-d2e6-41a1-ad6a-4e0223b0a1ed" />
